@@ -1,2 +1,2 @@
-https://docs.google.com/document/d/1buameVHA3QKlN6NjfEHbyvTcT1HsVR_N1G1oM_-DLEo/edit?usp=drivesdk
+https://docs.google.com/document/d/1WYbJQF8iWVhru6QFRD0t7RmE8Jr-7oI-/edit
 https://ru.yougile.com/board/115mio8yghxj
